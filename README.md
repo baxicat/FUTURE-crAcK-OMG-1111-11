@@ -9,7 +9,7 @@ Its retard kid released "his own crack of future client" in GUMA
 
 And.......
 
-Its just a 2.9 crack by CCC
+Its just a 2.9 crack by CCC and cleaned by PerrySwag
 
 
 ![Снимок](https://user-images.githubusercontent.com/88434607/176426774-af8cd33d-74fe-4907-af07-30e15f66b640.PNG)
