@@ -11,12 +11,10 @@ And.......
 
 Its just a 2.9 crack by CCC and cleaned by PerrySwag
 
-+ in his official discord server his say: "if you steal this and don’t give me credit I’ll dox you" lmao
-
 
 ![Снимок](https://user-images.githubusercontent.com/88434607/176426774-af8cd33d-74fe-4907-af07-30e15f66b640.PNG)
-![Снимок2](https://user-images.githubusercontent.com/88434607/176426785-c5857148-b45a-433d-93d2-206cf639aa71.PNG)
-![Снимок2](https://user-images.githubusercontent.com/88434607/176429084-e40c8c0c-4a2c-45eb-b8b3-b68fb3e3c349.PNG)
+![Снимок2](https://![Снимок3](https://user-images.githubusercontent.com/88434607/176429154-399fce0c-1cba-4b24-b156-b57c87244f63.PNG)
+user-images.githubusercontent.com/88434607/176426785-c5857148-b45a-433d-93d2-206cf639aa71.PNG)
 
 
 
