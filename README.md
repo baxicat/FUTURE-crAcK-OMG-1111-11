@@ -13,8 +13,9 @@ Its just a 2.9 crack by CCC and cleaned by PerrySwag
 
 
 ![Снимок](https://user-images.githubusercontent.com/88434607/176426774-af8cd33d-74fe-4907-af07-30e15f66b640.PNG)
-![Снимок2](https://![Снимок3](https://user-images.githubusercontent.com/88434607/176429154-399fce0c-1cba-4b24-b156-b57c87244f63.PNG)
-![Снимок3](https://user-images.githubusercontent.com/88434607/176429258-fa32af42-0b8b-4916-843d-a8f173662be5.PNG)
+![Снимок3](https://user-images.githubusercontent.com/88434607/176429154-399fce0c-1cba-4b24-b156-b57c87244f63.PNG)
+![Снимок2](https://user-images.githubusercontent.com/88434607/176429357-ed3cb07c-7e6d-4d95-9eee-012cf96b1d82.PNG)
+
 
 
 
