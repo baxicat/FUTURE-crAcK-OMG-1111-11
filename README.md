@@ -24,3 +24,9 @@ Its just a 2.9 crack by CCC
 My discord: AlphaMonkee#0482
 
 Discord of retard kid: 上行ASCENDIDK#6071
+
+what i was talking about:
+
+https://discord.gg/rPgW2kqdu2 - GUMA
+
+https://github.com/CoolClientCollectorz/future-for-everyone - Crack of Future client by CCC
