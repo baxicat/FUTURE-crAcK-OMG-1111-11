@@ -3,7 +3,7 @@ Futre crack by NN
 
 Ok, future crack by ASCENDIDK_
 
-Idk who is this, maybe its NoName :)
+Idk who is this, maybe its NN :)
 
 Its retard kid released "his own crack of future client" in GUMA
 
