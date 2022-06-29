@@ -11,6 +11,8 @@ And.......
 
 Its just a 2.9 crack by CCC and cleaned by PerrySwag
 
++ its retard kid say in his own discord server: "we did it", "@tertaco if you steal this and don’t give me credit I’ll dox you" lmao
+
 
 ![Снимок](https://user-images.githubusercontent.com/88434607/176426774-af8cd33d-74fe-4907-af07-30e15f66b640.PNG)
 ![Снимок3](https://user-images.githubusercontent.com/88434607/176429154-399fce0c-1cba-4b24-b156-b57c87244f63.PNG)
