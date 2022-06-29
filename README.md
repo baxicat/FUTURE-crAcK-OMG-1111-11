@@ -2,10 +2,15 @@
 Futre crack by NN
 
 Ok, future crack by ASCENDIDK_
+
 Idk who is this, maybe its NoName :)
+
 Its retard kid released "his own crack of future client" in GUMA
+
 And.......
+
 Its just a 2.9 crack by CCC
+
 And its retard kid send massage about what will soon crack 2.13
 
 
